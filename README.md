@@ -1,7 +1,7 @@
 # Hi, I'm Nilesh Kumar Singh! (AKA Mechnilesh) 👋
 
 ## 🚀 About Me
-I'm a 21 year old coding enthusiast with some knowledge in App and Web Development!
+Build Build Build
 
 
 ## 🔗 Links
