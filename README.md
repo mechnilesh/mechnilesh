@@ -1,7 +1,7 @@
 # Hi, I'm Nilesh Kumar Singh! (AKA Mechnilesh) 👋
 
 ## 🚀 About Me
-Build Build Build
+A Github user who uses Bitbucket on regular basis
 
 
 ## 🔗 Links
